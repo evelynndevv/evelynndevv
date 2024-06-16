@@ -1,5 +1,5 @@
 # Evelynn
-I'm a 14 year old trans girl from and in Kazahstan, I love cats and other feline animals.
+I'm a 14 year old trans girl from and in Kazakhstan, I love cats and other feline animals.
 You can contact me thru [discord](https://discord.com/users/1248689798445666416) or check out my [website](https://evelynn.pw/) 
 ...or even my [repo](https://discord.com/users/1248689798445666416).
 
